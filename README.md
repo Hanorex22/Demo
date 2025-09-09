@@ -9,3 +9,5 @@ My family has four member
 My father name is Arul Diaz,he is a painter 
 My mother name is Sheeja,she works in ration shop
 My brother name is Jino Rex,he is studing in ninth standard
+My role model is my Father
+my favourite person is my parents
